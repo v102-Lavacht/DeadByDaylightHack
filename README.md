@@ -1,6 +1,6 @@
 # DeadByDaylightHack
 
-[![https://gg.gg/17j1yw](http://gg.gg/17j1yx)](https://gg.gg/17j1yw)
+[![https://gg.gg/17j1yw](https://bit.ly/3st2TAE)](https://gg.gg/17j1yw)
 [![https://gg.gg/17j1yw](http://gg.gg/17j1yy)](https://gg.gg/17j1yw)
 [![https://gg.gg/17j1yw](http://gg.gg/17j1z0)](https://gg.gg/17j1yw)
 # 🛠 System Requirements:
