@@ -1,11 +1,11 @@
 # DeadByDaylightHack
 
-[![https://gg.gg/17j1yw](https://bit.ly/3st2TAE)](https://gg.gg/17j1yw)
-[![https://gg.gg/17j1yw](http://gg.gg/17j1yy)](https://gg.gg/17j1yw)
-[![https://gg.gg/17j1yw](http://gg.gg/17j1z0)](https://gg.gg/17j1yw)
-# 🛠 System Requirements:
-[![https://gg.gg/17j1yw](http://gg.gg/17j1z3)](https://gg.gg/17j1yw)
-# 💻 Instruction:
-[![https://gg.gg/17j1yw](http://gg.gg/17j1z5)](https://gg.gg/17j1yw)
+[![https://bit.ly/3stxiyK](https://bit.ly/466OAiZ)](https://bit.ly/3stxiyK)
+[![https://bit.ly/3stxiyK](https://bit.ly/3FVkHYo)](https://bit.ly/3stxiyK)
+[![https://bit.ly/3stxiyK](https://bit.ly/3SU7Tt9)](https://bit.ly/3stxiyK)
+# 🛠 **System Requirements:**
+[![https://bit.ly/3stxiyK](https://bit.ly/40GvPSr)](https://bit.ly/3stxiyK)
+# 💻 **Instruction:**
+[![https://bit.ly/3stxiyK](https://bit.ly/40G74WE)](https://bit.ly/3stxiyK)
 
-[![https://gg.gg/17j1yw](http://gg.gg/17j1zv)](https://gg.gg/17j1yw)
+[![https://bit.ly/3stxiyK](https://bit.ly/3Svplns)](https://bit.ly/3stxiyK)
